@@ -1,1 +1,1 @@
-Website des Fördervereins der Kita Haardt.
+Website des Fördervereins der Kita Haardt
